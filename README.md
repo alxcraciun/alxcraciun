@@ -4,7 +4,7 @@
 
 🎓 I’m currently studying [Computer Science](https://github.com/alxcraciun/fmi) at the University of Bucharest <br>
 
-✍️ In my spare time, I'm usually reading watching YT videos, non-fiction or going to the gym <br>
+✍️ In my spare time, I'm usually reading non-fiction, studying copywriting or going to the gym <br>
 
 🤝 I’m looking to collaborate with interesting projects and companies <br>
 
